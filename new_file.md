@@ -1,3 +1,3 @@
 This is the content for my new file.
 
-нртыю╢╪ср╩обйтйт║ё
+Ф┬▒Е├█Ф²╔Е┼═Д╦─Д╦▀Х╞∙Х╞∙Ц─┌
